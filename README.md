@@ -52,7 +52,7 @@ frediezra60@gmail.com
 
 ## Facebook 
 
-[`Tap Here open`](https://facebook.com/Fredie man/)
+[`Tap Here open`](https://www.facebook.com/fredi.ezra)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -61,7 +61,7 @@ frediezra60@gmail.com
 
 ## Instagram
 
-[`Tap Here open`](https://www.instagram.com/Fredi Simba)
+[`Tap Here open`](https://www.instagram.com/fredi.ezra)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>

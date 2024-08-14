@@ -1,9 +1,9 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-# IBRAHIM-ADAMS-INFO
+# FREDI-EZRA-INFO
 
 ## Whatsapp Channel
 
-[`Tap Here open`](https://whatsapp.com/channel/0029VaZuGSxEawdxZK9CzM0Y)
+[`Tap Here open`](https://whatsapp.com/channel/0029VaihcQv84Om8LP59fO3f)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -11,7 +11,7 @@
 
 ## Email me if having any problem
 
-ibraahadams@gmail.com
+frediezra60@gmail.com 
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -19,7 +19,7 @@ ibraahadams@gmail.com
 
 ## Telegram
 
-[`Tap Here open`](https://t.me/Ibrahimadamstech)
+[`Tap Here open`](https://t.me/freditech)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -27,7 +27,8 @@ ibraahadams@gmail.com
 
 ## Follow me on github
 
-[`Tap Here open`](https://github.com/ibrahimaitech)
+[`Tap Here open 1`](https://github.com/Fred1e)
+[`Tap Here open 2`](https://github.com/Frecyber)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -35,7 +36,7 @@ ibraahadams@gmail.com
 
 ## YouTube for tutorials
 
-[`Tap Here open`](https://www.youtube.com/@ibrahimaitech)
+[`Tap Here open`](https://www.youtube.com/@freeonlinetvT1)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -43,15 +44,15 @@ ibraahadams@gmail.com
 
 ## WhatsApp Group
 
-[`Tap Here open`](https://chat.whatsapp.com/F5BXJci8EDS9AJ6sfKMXIS)
+[`Tap Here open`](https://chat.whatsapp.com/HdrwMccSFIaB5Zi7s9BzN9)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 
-## Facebook Group
+## Facebook 
 
-[`Tap Here open`](https://facebook.com/groups/1848230118956163/)
+[`Tap Here open`](https://facebook.com/Fredie man/)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -60,7 +61,7 @@ ibraahadams@gmail.com
 
 ## Instagram
 
-[`Tap Here open`](https://www.instagram.com/ibrahim_tech_official)
+[`Tap Here open`](https://www.instagram.com/Fredi Simba)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -68,23 +69,31 @@ ibraahadams@gmail.com
 
 ## Deployment site
 
-[`Tap Here open`](https://github.com/IBRAHIM-TECH-AI/DEPLOYMENT-SITE)
+[`Tap Here open`](https://github.com/Frecyber/BOTS-SITE)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 
-## Bmw md repo
+## Lucky md repo
 
-[`Tap Here open`](https://github.com/ibrahimaitech/BMW-MD/tree/main)
+[`Tap Here open`](https://github.com/Fred1e/LUCKY_MD/tree/main)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 
-## Black panther md repo
+## Frecyber md repo
 
-[`Tap Here open`](https://github.com/ibrahimaitech/BLACK-PANTHER-XMD)
+[`Tap Here open`](https://github.com/Frecyber/Frecyber-md)
+
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+
+## Fredi md repo
+
+[`Tap Here open`](https://github.com/Fred1e/FREDI_MD)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -92,12 +101,12 @@ ibraahadams@gmail.com
 
 ## SESSION SITE
 
-[`Tap Here open`](https://github.com/IBRAHIM-TECH-AI/SESSION-SITE/tree/main)
+[`Tap Here open`](https://github.com/Frecyber/FREDITECH-SESSION-SITE/tree/main)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-# Made by Ibrahim Adams
+# Made by Fredi Ezra
 
 # Star ✨ the repo if you don't mind 
 

@@ -52,7 +52,7 @@ frediezra60@gmail.com
 
 ## Facebook 
 
-[`Tap Here open`](https://www.facebook.com/fredi.ezra)
+[`Tap Here open`](https://www.facebook.com/profile.php?id=61553209932337)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
